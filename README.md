@@ -1,1 +1,1 @@
-# [Follow the tide](https://thamesestuarypartnership.github.io/followthetide/)
+# [Following the tide](https://thamesestuarypartnership.github.io/followthetide/)
